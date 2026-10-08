@@ -1,0 +1,2 @@
+# premium-geiger-count-001-geiger-counter-tube-click-ra
+Stop losing track of your geiger counter tube specs and click rate patterns in a mess of sticky notes and random files. This Notion template transforms your scattered data into a single, organized craft hub.  The Geiger Counter Tube &amp; Click Rate Craft Hub solves the chaos of managing multiple tubes, their specifications, and the click rates from yo
